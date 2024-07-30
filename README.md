@@ -33,7 +33,14 @@ Cricket, beloved by millions, deserves precise decision-making and training tool
 - 
 
 https://github.com/user-attachments/assets/ee20abab-0108-4d93-8d68-364f93e9c9a4
+
+
+
 https://github.com/user-attachments/assets/ed75e9ba-2fc2-449d-acd0-0724090a9818
+
+
+
+
 https://github.com/user-attachments/assets/698683e4-0476-4846-bb4b-5853596aba6b
 
 ## How It Works
